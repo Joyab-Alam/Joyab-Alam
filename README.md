@@ -7,7 +7,7 @@
 - 👯 I’m looking for a job Change
 - 🥅 Goals: Contribute more to Open Source projects
 - ⚡ Fun fact: I love to draw and play guitar / drums
-- connect with me joyabalam@gmail.com
+- connect with me joyabalam.cs@gmail.com
 
 
 
